@@ -13,6 +13,7 @@ A great waterfall to go to in the valley would be Vernal Falls. Even though the 
 ![](https://upload.wikimedia.org/wikipedia/commons/1/19/04935-Kalifornien-1903-Fallen_Monarch%2C_Mariposa_Grove-Br%C3%BCck_%26_Sohn_Kunstverlag.jpg)
 Mariposa Grove is in the southernmost point of Yosemite, and the giant sequoia trees make you feel like a tiny ant!
 <br>
+<br>
 # 2. Yellowstone National Park
 ![](https://live.staticflickr.com/65535/47006411034_6205e66478_b.jpg)
 Next up is the first National Park ever made, founded in 1872 by President Ulysses S. Grant! The United States has about 60% of the whole world's geysers, and all of them are housed within this territory!
@@ -20,6 +21,9 @@ Next up is the first National Park ever made, founded in 1872 by President Ulyss
 ## Upper Falls of the Yellowstone River
 ![](https://live.staticflickr.com/4303/35449748673_fa370c4df8_b.jpg)
 If you travel up to the Upper Falls of Yellowstone, you'll be greeted by an incredible view of a huge river canyon. There are several lookouts such as Uncle Tom's Lookout, the South Ridge Trail, and the Chittenden Bridge to view the beautiful scenery.
+## Old Faithful
+Bearing the signature image of Yellowstone is the Old Faithful geyser, which rose to fame due to its very predictable eruption times. The geyser can blast up to 106-184 feet tall!
+<br>
 <br>
 # 3. Zion National Park
 asdfasdfdsf
