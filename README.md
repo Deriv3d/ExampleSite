@@ -33,8 +33,9 @@ Zion's towering peaks and sandstone cliffs will surely fill you with awe when yo
 ![](https://live.staticflickr.com/664/22664370233_a3bdeb3544_b.jpg)
 To hike up to Angels Landing in Zion is no small feat. First, you're going to have to get a permit, and even if you do get it, the 5.4 mile round-trip hike spanning about 1,488 feet in elevation is no joke. If you're afraid of heights, definitely don't try this! However, if you want to see one of the best views of Zion National Park from above, this trail is for you.
 <br>
-## Mount Whitney
-On the hike up to Mount Whitney, there is a place where you can see both the Moon set in the West and the Sun rise in the East at the exact same time. If you manage to hike up early enough, this is a sight that you'll never forget!
+## The Narrows
+![](https://live.staticflickr.com/7902/46267973004_4dba287d2c_b.jpg)
+In the valleys of Zion National Park, the Narrows house a tiny area that is susceptible to huge amounts of flooding, espsecially in the spring. However, when not in season, you can wade through this beautiful trail and catch the marvels of what the rivers and flooding have carved out through centuries of erosion. 
 <br>
 <br>
 <br>
