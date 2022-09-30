@@ -22,6 +22,7 @@ Next up is the first National Park ever made, founded in 1872 by President Ulyss
 ![](https://live.staticflickr.com/4303/35449748673_fa370c4df8_b.jpg)
 If you travel up to the Upper Falls of Yellowstone, you'll be greeted by an incredible view of a huge river canyon. There are several lookouts such as Uncle Tom's Lookout, the South Ridge Trail, and the Chittenden Bridge to view the beautiful scenery.
 ## Old Faithful
+![](https://live.staticflickr.com/5118/13931227900_694812e280_b.jpg)
 Bearing the signature image of Yellowstone is the Old Faithful geyser, which rose to fame due to its very predictable eruption times. The geyser can blast up to 106-184 feet tall!
 <br>
 <br>
