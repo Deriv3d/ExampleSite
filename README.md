@@ -43,4 +43,4 @@ In the valleys of Zion National Park, the Narrows house a tiny area that is susc
 <h2 style="text-align: center;"> And that's all! These are the "big three" of my favorite National Parks. Hopefully you learned something, and perhaps you may want to go to some of these places in the near future! Also check out the National Park Service's official website for more recommendations, guidelines, and opening times! </h2>
 
 <p>This is the <a href="https://www.nps.gov/index.htm" title="Official National Park Service Website">
-.</a></p>
+Official National Park Service Website</a></p>
