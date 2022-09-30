@@ -27,6 +27,7 @@ Bearing the signature image of Yellowstone is the Old Faithful geyser, which ros
 <br>
 <br>
 # 3. Zion National Park
+![](https://live.staticflickr.com/65535/49942082807_bf3bc1ea1f_b.jpg)
 Zion's towering peaks and sandstone cliffs will surely fill you with awe when you first come across them.
 <br>
 ## Angels Landing
