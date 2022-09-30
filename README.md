@@ -40,4 +40,4 @@ In the valleys of Zion National Park, the Narrows house a tiny area that is susc
 <br>
 <br>
 <br>
-<p style="text-align: center;"> And that's all! These are the "big three" of my favorite National Parks. Hopefully you learned something, and perhaps you may want to go to some of these places in the near future! </p>
+<h2 style="text-align: center;"> And that's all! These are the "big three" of my favorite National Parks. Hopefully you learned something, and perhaps you may want to go to some of these places in the near future! </h2>
