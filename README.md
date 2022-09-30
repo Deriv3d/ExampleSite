@@ -27,5 +27,14 @@ Bearing the signature image of Yellowstone is the Old Faithful geyser, which ros
 <br>
 # 3. Zion National Park
 Zion's towering peaks and sandstone cliffs will surely fill you with awe when you first come across them.
+<br>
 ## Angels Landing
 ![](https://live.staticflickr.com/664/22664370233_a3bdeb3544_b.jpg)
+To hike up to Angels Landing in Zion is no small feat. First, you're going to have to get a permit, and even if you do get it, the 5.4 mile round-trip hike spanning about 1,488 feet in elevation is no joke. If you're afraid of heights, definitely don't try this! However, if you want to see one of the best views of Zion National Park from above, this trail is for you.
+<br>
+## Mount Whitney
+On the hike up to Mount Whitney, there is a place where you can see both the Moon set in the West and the Sun rise in the East at the exact same time. If you manage to hike up early enough, this is a sight that you'll never forget!
+<br>
+<br>
+<br>
+<p style="text-align: center;"> And that's all! These are the "big three" of my favorite National Parks. Hopefully you learned something, and perhaps you may want to go to some of these places in the near future! </p>
